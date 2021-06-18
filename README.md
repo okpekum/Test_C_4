@@ -30,3 +30,9 @@ Testing
 ![Winfred_Photo](https://pbs.twimg.com/media/EvdtF5ZWQAIHwJI.jpg)
 
 
+**Moses Okpeku**
+**Institution:** University of Kwazulu-Natal, South Africa
+**Hobbies**
+1. Reading the Bible
+2. Reading scientific journals
+3.watching cartoon movies
